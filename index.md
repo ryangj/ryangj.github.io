@@ -1,1 +1,1 @@
-index file
+student at Duke University
